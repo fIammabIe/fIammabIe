@@ -8,6 +8,6 @@ int ;; anyone (as long as youre not apart of my dni), dragon striker/mighty nein
 
 uncomf with ;; kys jokes, overly sexual jokes/art
 
-HEAVY dni on smoked x burnt cheese ;; one reason is because they look like brothers
+HEAVY dni on smoked x burnt cheese ;; one reason is because im a heavy smoked cheese kin😳 and overall i just kind of see the two as more brotehrz than lovers
 
 ^^ please use tonetags at times -_-" i am pretty slow to understand
