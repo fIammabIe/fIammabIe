@@ -1,6 +1,5 @@
 
-
-dni if you make israel jokes / call anyone an israel supporter just because you dont like their ship or interests, dni if you just support israel in general
+^_^" pls dont screenshot my skins and put them on any socials you can take inspo from them but do not copy them
 
 
 ![](https://komarev.com/ghpvc/?username=xxchez&color=73241C)
