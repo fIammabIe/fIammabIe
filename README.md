@@ -1,7 +1,8 @@
 
 hi hello yes hi YOU
 
-just to be informed, i do use she/her on elder faerie ^_^! if you dont like that then BLOCK me loooool i wont force you to do the same :/
+just to be informed, i do use she/her on elder faerie ^_^! if you dont like that then BLOCK me loooool i wont force you to do the same :/ 
 
+selective-sharing faerie yume
 
 ![](https://komarev.com/ghpvc/?username=xxchez&color=73241C)
