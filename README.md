@@ -5,6 +5,6 @@ just to be informed, i do use she/her on elder faerie  ^_^! if you dont like tha
 
 nonbinary silent salt propaganda❤️‍🩹
 
-selective-sharing faerie & fire spirit yume
+selective-sharing faerie yume
 
 ![](https://komarev.com/ghpvc/?username=xxchez&color=73241C)
